@@ -87,10 +87,11 @@ Do this until you have around 4 houses and a complete wooden armor set.
 
 ### The Copper phase
 
+From here onwards, you should both feel comfortable in your Terraria world.
+Sure, leaving the home base is scare, but also exciting.
+Go on little missions.
 
-### The Thungsten/Lead phase
-
-
+And from here on, you can visit the regular Terraria guides. Enjoy!
 
 
 
